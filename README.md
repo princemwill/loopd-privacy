@@ -39,4 +39,4 @@ This Privacy Policy may be updated from time to time for any reason. The Service
 
 ### 8. Contact Us
 If you have any questions regarding privacy while using the Application, or have questions about our practices, please contact the Service Provider via email at:  
-**[Your Email Address Here]**
+**support@evolvinginsightssolutions.com**
